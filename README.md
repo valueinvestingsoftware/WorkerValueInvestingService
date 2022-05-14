@@ -7,9 +7,9 @@
 
 This is a unique long-term partnership opportunity. I have been developing the software mentioned in the below video for two years so far. In order to speed up the development of the software, I offer this partnership that could bring you personal satisfaction and economical benefits.
 
-[Download Software Description Video](https://www.dropbox.com/s/quys9cgf203m4s7/Stocks.zip?dl=0).
+[Download Software Description Video](https://www.dropbox.com/s/184fcsiyy3d4v8o/VIDEO_ValueInvestingSoftware.avi?dl=0).
 
-[Download Software](https://www.youtube.com/c/THESTOCKMARKETVALUEINVESTINGCHANNEL/about).
+[Download Software](https://www.dropbox.com/s/quys9cgf203m4s7/Stocks.zip?dl=0).
 
  # What do you get?
 - **100%** of the money that you receive for the sales of the software.
@@ -85,9 +85,9 @@ Esta es una oportunidad única de asociación a largo plazo. He estado desarroll
 
 Il s'agit d'une opportunité unique de partenariat à long terme. J'ai développé le logiciel mentionné dans la vidéo ci-dessous pendant deux ans jusqu'à présent. Afin d'accélérer le développement du logiciel, je vous propose ce partenariat qui pourrait vous apporter satisfaction personnelle et avantages économiques.
 
-[Télécharger la vidéo de description du logiciel] (https://www.dropbox.com/s/quys9cgf203m4s7/Stocks.zip?dl=0).
+[Télécharger la vidéo de description du logiciel] (https://www.dropbox.com/s/wq3z8gx028k2b4u/VIDEO_ValueInvesting_Fr.avi?dl=0).
 
-[Télécharger le logiciel](https://www.youtube.com/c/THESTOCKMARKETVALUEINVESTINGCHANNEL/about).
+[Télécharger le logiciel](https://www.dropbox.com/s/quys9cgf203m4s7/Stocks.zip?dl=0).
 
  # Qu'est ce que tu obtiens?
 - **100 %** de l'argent que vous recevez pour les ventes du logiciel.
